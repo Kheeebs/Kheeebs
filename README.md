@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Khebs
 - 👀 I’m interested in someone that can't be mine
-- 🌱 I’m currently learning how to move on to this girl who isn't even mine in the first place
-- 💞️ I’m looking for someone who will like me back
 - 📫 How to reach me ...
 - 📫 You can't reach me...
 
